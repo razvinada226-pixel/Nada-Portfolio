@@ -1,4 +1,4 @@
-# Nadiya Khan
+# Nada Razvi
 
 ## About Me
 
